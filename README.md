@@ -1,1 +1,1 @@
-recent decide explore shelter record active toward think familiar planning manner draw shot hollow movie
+alike signal nor small run cup tower measure pull law than function guard dot poet
