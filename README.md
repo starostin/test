@@ -1,1 +1,1 @@
-double here shallow chose there kitchen handle accept trap political below adventure chicken sport loud
+boat corn minerals continent noted recent receive box act present fully chart soldier stop lungs
