@@ -1,1 +1,1 @@
-equator pot me strip eager material piece zero memory bare carry laid fought summer its
+until both name coach fuel reach those ask skill taste desert prize meant fine student
