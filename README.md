@@ -1,1 +1,1 @@
-pony operation control highway attached fight bat twenty sharp heavy see aware zulu adjective social
+vegetable bit ought upper farm once string hold tool widely jar great nor near known
