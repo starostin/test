@@ -1,1 +1,1 @@
-personal year several glass toward cool either occur refer egg now became dawn hit path
+yard strike afternoon plates hurt track village step waste football fastened avoid lie gray pass
