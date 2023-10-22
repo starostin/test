@@ -1,1 +1,1 @@
-yard strike afternoon plates hurt track village step waste football fastened avoid lie gray pass
+seed oxygen exciting serious warn shade straw coal recognize station rain butter able cabin sheep
