@@ -1,1 +1,1 @@
-give time storm serious fight care stopped happened image zebra now molecular owner next stop
+gasoline night comfortable paper save distance complete dress offer plates fair example earth basic law
