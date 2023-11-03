@@ -1,1 +1,1 @@
-tried chicken treated dish solution wise solution cow loose race afternoon lungs jungle child curious
+bank previous famous difference forth correctly equipment slightly pig flat certainly brown without army explanation
