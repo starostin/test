@@ -1,1 +1,1 @@
-choose warm wagon silent board public truth window amount national general busy enter prove clear
+recognize putting football indicate purple oil do far degree other pen thread production tie full
