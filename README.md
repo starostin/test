@@ -1,1 +1,1 @@
-prepare put receive shoot recall act pine younger article discovery given seeing teach quick stretch
+heat ordinary promised outline track easily surrounded born speak center dear sea somebody enemy improve
