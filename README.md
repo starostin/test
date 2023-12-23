@@ -1,1 +1,1 @@
-moon only spider itself dig lunch together universe nest fall flame copper type language everywhere
+spoken mean automobile door numeral shut summer moon forgot tin impossible lake white old pet
