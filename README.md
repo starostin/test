@@ -1,1 +1,1 @@
-avoid spent remember interest knowledge triangle work mighty special push bone police written fear energy
+clearly glad exact chamber sort six strong president sale toward welcome problem year string national
