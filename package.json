@@ -1,6 +1,6 @@
 {
   "name": "test-rokki",
-  "version": "1.0.0",
+  "version": "1.0.1",
   "type": "module",
   "author": "starostin",
   "license": "ISC",
@@ -12,9 +12,9 @@
   },
   "repository": {
     "type": "git",
-    "url": "git+https://github.com/starostin/star_test.git"
+    "url": "https://github.com/starostin/test.git"
   },
-  "homepage": "https://github.com/starostin/star_test#readme",
+  "homepage": "https://github.com/starostin/test#readme",
   "dependencies": {
     "antd": "^5.14.1",
     "react": "^18.2.0",
