@@ -1,1 +1,1 @@
-tired handle accurate earth stood travel huge prevent cowboy detail breathing chicken worried choose snake
+affect throw moment situation detail job musical away process of replied accident foreign say drop
